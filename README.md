@@ -6,4 +6,4 @@ Y'all better be ready for this,...
 'cause imma 'bout to blow the hell 
 out of y'all. 
       
-Deuces
+Deuces.
